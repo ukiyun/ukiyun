@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ukiyun, but you can call me Mari
-- 👀 I’m interested in coding lol, mainly the coding in games
-- 🌱 I’m currently trying to understand some coding languages and start coding myself
+- 👀 I’m interested in game and software development
+- 🌱 I’m currently learning the basics
 
 
 <!---
