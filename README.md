@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ukiyun, but you can call me Mari
 - 👀 I’m interested in game and software development
-- 🌱 I’m currently learning the basics of coding in python
+- 🌱 I’m currently learning the basics of coding in c++
 
 
 <!---
