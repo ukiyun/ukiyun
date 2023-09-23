@@ -9,7 +9,7 @@
 
                      ⋘⠀⠀⠀⠀ ⠀𝖒𝖔𝖗𝖊 𝖆𝖇𝖔𝖚𝖙 𝖒𝖊⠀⠀⠀⠀⠀⠀⠀⋙
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀      →⠀ ᴇɴɢʟɪsʜ/ᴘᴏʀᴛᴜɢᴜᴇsᴇ
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     →⠀ ᴇɴɢʟɪsʜ/ᴘᴏʀᴛᴜɢᴜᴇsᴇ
                    →  ᴍᴀᴊᴏʀɪɴɢ ɪɴ ɪɴғᴏʀᴍᴀᴛɪᴄs ᴀɴᴅ ᴄᴏᴍᴘᴜᴛɪɴɢ ᴇɴɢɪɴᴇᴇʀɪɴɢ (ᴘᴀɪɴ)
                    →  ɪ sᴘᴇɴᴅ wᴀʏ ᴛᴏᴏ ᴍᴜᴄʜ ᴛɪᴍᴇ ᴘʟᴀʏɪɴɢ ɢᴀᴍᴇs
                    →  ᴄs:ɢᴏ / ʟᴇᴀɢᴜᴇ / ᴍɪɴᴇᴄʀᴀғᴛ
@@ -22,8 +22,8 @@
                    → ᴍᴀʟ: https://myanimelist.net/profile/ukiyun
                    → sᴛᴇᴀᴍ: https://steamcommunity.com/id/ukiyun
 
-
-![dazai](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9abfb5ff-33a2-401d-b003-d8c4bcc18673/dbrdba3-54242bbb-6f39-40a8-9a3c-baacd1d33bad.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzlhYmZiNWZmLTMzYTItNDAxZC1iMDAzLWQ4YzRiY2MxODY3M1wvZGJyZGJhMy01NDI0MmJiYi02ZjM5LTQwYTgtOWEzYy1iYWFjZDFkMzNiYWQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.tLfyPKwnIG830mV80Cvft6UR3BjOsJFZ1V5jQpyufJM)
+  
+![image](https://github.com/ukiyun/ukiyun/assets/85456787/d134906a-710d-4324-9c93-f90e7cb16bae)
 
 
 
