@@ -23,7 +23,7 @@
                    → sᴛᴇᴀᴍ: https://steamcommunity.com/id/ukiyun
 
   
-![image](https://github.com/ukiyun/ukiyun/assets/85456787/d134906a-710d-4324-9c93-f90e7cb16bae.gif)
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9abfb5ff-33a2-401d-b003-d8c4bcc18673/dbrdba3-54242bbb-6f39-40a8-9a3c-baacd1d33bad.gif)
 
 
 
