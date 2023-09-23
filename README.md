@@ -22,8 +22,9 @@
                    → ᴍᴀʟ: https://myanimelist.net/profile/ukiyun
                    → sᴛᴇᴀᴍ: https://steamcommunity.com/id/ukiyun
 
-  
-![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9abfb5ff-33a2-401d-b003-d8c4bcc18673/dbrdba3-54242bbb-6f39-40a8-9a3c-baacd1d33bad.gif)
+
+  ![image](https://github.com/ukiyun/ukiyun/assets/85456787/6bb1bce1-6b6d-4f0b-b02e-6443bb5f96a2](https://images8.alphacoders.com/132/1322540.png)
+
 
 
 
