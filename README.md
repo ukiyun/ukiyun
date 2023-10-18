@@ -1,36 +1,68 @@
-<pre style="white-space: pre-wrap;">
-                                             ⫷ ⠀⠀⠀⠀⠀⠀⠀     𝖜𝖊𝖑𝖈𝖔𝖒𝖊 ⠀⠀⠀⠀⠀⠀⠀     ⫸
+<br clear="both">
 
-                        ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                →⠀⠀𝘔𝘈𝘙𝘐𝘈𝘕𝘈
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                                        →⠀⠀𝘚𝘏𝘌/𝘛𝘏𝘌𝘠 ✩︎ 20
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                                        →⠀⠀𝘐𝘕𝘍𝘗-𝘛
+<div align="center">
+  <img height="188" src="https://i.pinimg.com/originals/a4/7b/0b/a47b0b819f3b04c3ea9b7af0580ed165.gif"  />
+</div>
 
-                        ﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀
+###
 
-                                                 ⋘⠀⠀⠀⠀ ⠀𝖒𝖔𝖗𝖊 𝖆𝖇𝖔𝖚𝖙 𝖒𝖊⠀⠀⠀⠀⠀⠀⠀⋙
+<h2 align="center">⚝ About Me ⚝</h2>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                               →⠀ ᴇɴɢʟɪsʜ/ᴘᴏʀᴛᴜɢᴜᴇsᴇ
-                                             →  ᴍᴀᴊᴏʀɪɴɢ ɪɴ ɪɴғᴏʀᴍᴀᴛɪᴄs ᴀɴᴅ ᴄᴏᴍᴘᴜᴛɪɴɢ ᴇɴɢɪɴᴇᴇʀɪɴɢ (ᴘᴀɪɴ)
-                                             →  ɪ sᴘᴇɴᴅ wᴀʏ ᴛᴏᴏ ᴍᴜᴄʜ ᴛɪᴍᴇ ᴘʟᴀʏɪɴɢ ɢᴀᴍᴇs
-                                             →  ᴄs:ɢᴏ / ʟᴇᴀɢᴜᴇ / ᴍɪɴᴇᴄʀᴀғᴛ
-                                             →  ᴄᴀsᴜᴀʟ ᴀɴɪᴍᴇ wᴀᴛᴄʜᴇʀ
+###
 
-⠀                       ﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀
+<h5 align="center">→⠀𝘔𝘢𝘳𝘪𝘢𝘯𝘢<br>→⠀𝘚𝘏𝘌 / 𝘛𝘏𝘌𝘠 ✩︎ 20<br>→⠀𝘔𝘢𝘫𝘰𝘳𝘪𝘯𝘨 𝘪𝘯 𝘐𝘯𝘧𝘰𝘳𝘮𝘢𝘵𝘪𝘤𝘴 𝘢𝘯𝘥 𝘊𝘰𝘮𝘱𝘶𝘵𝘪𝘯𝘨 𝘌𝘯𝘨𝘪𝘯𝘦𝘦𝘳𝘪𝘯𝘨<br>→⠀𝘐 𝘴𝘱𝘦𝘯𝘥 𝘸𝘢𝘺 𝘵𝘰𝘰 𝘮𝘶𝘤𝘩 𝘵𝘪𝘮𝘦 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘨𝘢𝘮𝘦𝘴</h5>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                                  《 ⠀⠀⠀⠀⠀⠀⠀⠀𝖊𝖝𝖙𝖗𝖆𝖘⠀⠀⠀⠀⠀⠀⠀⠀ 》
+###
 
-                                             → ᴍᴀʟ: https://myanimelist.net/profile/ukiyun
-                                             → sᴛᴇᴀᴍ: https://steamcommunity.com/id/ukiyun
+<h2 align="center">──────────⋅ ˚₊⋅─── 𝙎𝙊𝘾𝙄𝘼𝙇𝙎 ───⋅ ˚₊ ⋅──────────</h2>
 
-  </pre>
-  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9abfb5ff-33a2-401d-b003-d8c4bcc18673/dbrdba3-54242bbb-6f39-40a8-9a3c-baacd1d33bad.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzlhYmZiNWZmLTMzYTItNDAxZC1iMDAzLWQ4YzRiY2MxODY3M1wvZGJyZGJhMy01NDI0MmJiYi02ZjM5LTQwYTgtOWEzYy1iYWFjZDFkMzNiYWQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.tLfyPKwnIG830mV80Cvft6UR3BjOsJFZ1V5jQpyufJM" alt="drawing" width="2000"/>
+###
 
+<h5 align="center">→⠀𝘔𝘈𝘓 : https://myanimelist.net/profile/ukiyun<br>→⠀𝘚𝘛𝘌𝘈𝘔 : https://steamcommunity.com/id/ukiyun</h5>
 
+###
 
+<h2 align="center">─────⋅ ˚₊⋅─── 𝙇𝘼𝙉𝙂𝙐𝘼𝙂𝙀𝙎 𝙄'𝙑𝙀 𝙋𝙍𝙊𝙂𝙍𝘼𝙈𝙈𝙀𝘿 𝙊𝙉 ───⋅ ˚₊ ⋅────</h2>
 
+###
 
+<div align="center">
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/python/python-original.svg" height="30" alt="python logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/cplusplus/cplusplus-original.svg" height="30" alt="cplusplus logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/c/c-original.svg" height="30" alt="c logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/java/java-original.svg" height="30" alt="java logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/flutter/flutter-original.svg" height="30" alt="flutter logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/dart/dart-original.svg" height="30" alt="dart logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/css3/css3-original.svg" height="30" alt="css3 logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/html5/html5-original.svg" height="30" alt="html5 logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/sqlite/sqlite-original.svg" height="30" alt="sqlite logo"  />
+  <img width="12" />
+  <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/pandas/pandas-original.svg" height="30" alt="pandas logo"  />
+</div>
 
-<!---
-ukiyun/ukiyun is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+###
+
+<h2 align="center">──────────⋅ ˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊ ⋅──────────</h2>
+
+###
+
+<div align="center">
+  <img src="https://github-readme-stats.vercel.app/api/top-langs?username=ukiyun&locale=en&hide_title=false&layout=compact&card_width=320&langs_count=6&theme=dracula&hide_border=false" height="150" alt="languages graph"  />
+  <img src="https://github-readme-stats.vercel.app/api?username=ukiyun&hide_title=false&hide_rank=false&show_icons=true&include_all_commits=true&count_private=true&disable_animations=false&theme=dracula&locale=en&hide_border=false" height="150" alt="stats graph"  />
+</div>
+
+###
+
+<div align="center">
+  <img height="155" src="https://i.pinimg.com/originals/a0/5d/ba/a05dbadd65f4f5da6034aa7c82f3f997.gif"  />
+</div>
+
+###
